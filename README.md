@@ -1,2 +1,0 @@
-# kejutan-for-keica
-hahahha
